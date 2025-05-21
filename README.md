@@ -17,7 +17,7 @@
 <br />
 𝖋𝖎𝖈𝖙𝖐𝖎𝖓𝖘:
 <br />
-⟡ joule (olc StEx) <br />
+⟡ joule (all StEx productions) <br />
 ⟡ wanda maximoff (specifically from the mcu) <br />
 <br />
 <br />
