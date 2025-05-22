@@ -18,7 +18,7 @@
 𝖋𝖎𝖈𝖙𝖐𝖎𝖓𝖘:
 <br />
 ⟡ joule (all StEx productions) <br />
-⟡ wanda maximoff (specifically from the mcu) <br />
+⟡ wanda maximoff <br />
 <br />
 <br />
 ![Image](https://github.com/user-attachments/assets/e607a10f-f3ef-4729-a6db-0eb67f09b1b5) <br />
