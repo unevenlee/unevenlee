@@ -1,7 +1,7 @@
 
 ![Wanda-stamp](https://github.com/user-attachments/assets/71a74aa3-a9d4-4102-b649-584dc7b69d5a) ![stamp](https://github.com/user-attachments/assets/6cf0f308-bb8a-48c6-a1f2-0088aa2defe5) ![stamp](https://github.com/user-attachments/assets/458e9db4-36f7-4b95-bc5b-8ea86fd921b0) ![stamp](https://github.com/user-attachments/assets/69a5cb12-10f9-4971-81f8-7eb8ab171d81) ![stamp](https://github.com/user-attachments/assets/af5cf4e5-a850-47dc-9250-4dfdfa95a6ad) ![stamp](https://github.com/user-attachments/assets/1b9e1820-8adb-4df4-878e-80db105ab656)
 <br />
-![divider](https://github.com/user-attachments/assets/a8029387-c7ea-475d-b734-3191eedd4df9) ![tumblr_72407e0a8d1df6c589af0e7eb7005cf3_d7d57a7d_400](https://github.com/user-attachments/assets/e90f5a12-c090-44de-9704-0ebd31974593)
+![divider](https://github.com/user-attachments/assets/a8029387-c7ea-475d-b734-3191eedd4df9)
 
 <br />
 <br />
