@@ -3,7 +3,7 @@
 <br />
 [StrawPage](https://aleecia.straw.page/) / [Instagram](https://www.instagram.com/unevenlee/) / [Tumblr](https://www.tumblr.com/unevenlee) <br />
 <br />
-<br /><img src="https://64.media.tumblr.com/0a864752e8bb2c3e2034ef2ec3c285a6/2b6109a88798b692-a8/s75x75_c1/fee5b3afef5806dec027fa8c2b6d087c7329bb57.gif" width="100">
+<img src="https://64.media.tumblr.com/0a864752e8bb2c3e2034ef2ec3c285a6/2b6109a88798b692-a8/s75x75_c1/fee5b3afef5806dec027fa8c2b6d087c7329bb57.gif" width="100">
 <br />
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Funevenlee&label=visitors&labelColor=%23d9e3f0&countColor=%2349607f&style=plastic)
 <br />
